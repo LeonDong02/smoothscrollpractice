@@ -1,3 +1,0 @@
-# smoothscrollpractice
-# smoothscrollpractice
-# smoothscrollpractice
